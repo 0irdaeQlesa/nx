@@ -1,0 +1,27 @@
+# Babai i pasur, Babai i varfÃ«r: Libri qÃ« tÃ« mÃ«son tÃ« bÃ«hesh i pasur
+ 
+Babai i pasur, Babai i varfÃ«r Ã«shtÃ« njÃ« libÃ«r i shkruar nga Robert T. Kiyosaki, njÃ« sipÃ«rmarrÃ«s dhe edukator financiar amerikan. Libri tregon historinÃ« e autorit qÃ« kishte dy baballarÃ«: babain e tij biologjik, qÃ« ishte njÃ« profesor universitar me njÃ« pagÃ« modeste dhe njÃ« mentalitet tÃ« varfÃ«r, dhe babain e tij tÃ« adoptuar, qÃ« ishte njÃ« biznesmen i suksesshÃ«m me njÃ« pasuri tÃ« madhe dhe njÃ« mentalitet tÃ« pasur.
+ 
+Libri pÃ«rmban mÃ«simet qÃ« autorit i dha babai i tij i pasur pÃ«r paratÃ«, investimet dhe biznesin, duke krahasuar ato me ato qÃ« i mÃ«soi babai i tij i varfÃ«r. Libri synon tÃ« ndryshojÃ« mÃ«nyrÃ«n se si njerÃ«zit mendojnÃ« pÃ«r paratÃ« dhe tÃ« tregojÃ« se si mund tÃ« bÃ«hen tÃ« pasur duke ndjekur disa parime financiare.
+ 
+**Download ····· [https://t.co/wuexFkNr6j](https://t.co/wuexFkNr6j)**
+
+
+ 
+Libri Ã«shtÃ« bÃ«rÃ« njÃ« bestseller botÃ«ror, me mbi 32 milion kopje tÃ« shitura nÃ« 51 gjuhÃ«. Libri Ã«shtÃ« gjithashtu baza e njÃ« seri librash dhe produkteve tÃ« tjera edukative qÃ« autorit dhe bashkautorit Sharon Lechter u kanÃ« dhÃ«nÃ« famÃ«n dhe pasurinÃ«.
+ 
+NjÃ« nga avantazhet e leximit tÃ« kÃ«tij libri Ã«shtÃ« se mund ta gjeni falas nÃ« internet nÃ« formatin PDF. NjÃ« nga faqet ku mund ta shkarkoni librin Ã«shtÃ« [kjo](https://fliphtml5.com/tkfja/ibqh), ku mund ta lexoni edhe online nÃ« njÃ« version interaktiv. NjÃ« faqe tjetÃ«r ku mund ta shkarkoni librin Ã«shtÃ« [kjo](https://www.coursehero.com/file/110301588/Babai-i-pasur-babai-i-varferpdf/), ku mund ta lexoni edhe nÃ« formatin Word. NjÃ« faqe e tretÃ« ku mund ta gjeni librin Ã«shtÃ« [kjo](https://www.goodreads.com/book/show/56921143-babai-i-pasur-babai-i-varf-r), ku mund ta lexoni edhe pÃ«rshkrimin, vleresimet dhe komentet e lexuesve.
+ 
+Nuk ka asnjÃ« arsye qÃ« tÃ« mos lexoni kÃ«tÃ« libÃ«r qÃ« mund t'ju ndihmojÃ« tÃ« ndryshoni jetÃ«n tuaj financiare. Lexojeni sot Babai i pasur, Babai i varfÃ«r dhe filloni rrugÃ«n tuaj drejt pasurisÃ«!
+  
+Libri Babai i pasur, Babai i varfÃ«r Ã«shtÃ« ndarÃ« nÃ« 10 kapituj, ku secili trajton njÃ« mÃ«sim financiar. KÃ«to janÃ« mÃ«simet qÃ« libri ofron:
+ 
+- MÃ«simi 1: TÃ« pasurit nuk punojnÃ« pÃ«r para, por bÃ«jnÃ« paratÃ« tÃ« punojnÃ« pÃ«r ta. Autori shpjegon se si tÃ« pasurit kanÃ« njÃ« fluks tÃ« ardhurash pasive qÃ« i bÃ«n tÃ« jenÃ« tÃ« pavarur financiarisht, ndÃ«rsa tÃ« varfrit dhe tÃ« mesmit kanÃ« njÃ« fluks tÃ« shpenzimeve qÃ« i bÃ«n tÃ« jenÃ« tÃ« varur nga puna e tyre.
+- MÃ«simi 2: Pse tÃ« mÃ«sosh tÃ« menaxhosh paratÃ«. Autori tregon se si tÃ« pasurit kanÃ« njohuri financiare qÃ« i ndihmon tÃ« zgjedhin investimet e duhura dhe tÃ« shmangin taksat e larta, ndÃ«rsa tÃ« varfrit dhe tÃ« mesmit nuk dinÃ« si tÃ« menaxhojnÃ« paratÃ« dhe humbasin shumÃ« mundÃ«si.
+- MÃ«simi 3: Pse t'i marrÃ«sh pjesÃ«n mÃ« tÃ« madhe. Autori shpjegon se si tÃ« pasurit kanÃ« njÃ« mentalitet tÃ« ndryshim dhe rritje, qÃ« i bÃ«n tÃ« kÃ«rkojnÃ« mÃ« shumÃ« nga jeta dhe biznesi, ndÃ«rsa tÃ« varfrit dhe tÃ« mesmit kanÃ« njÃ« mentalitet tÃ« frikshme dhe kufizues, qÃ« i bÃ«n tÃ« kufizohen nga frika e dÃ«shtimit dhe mungesa e besimit.
+- MÃ«simi 4: Historia e taksave dhe fuqia e korporatave. Autori tregon se si sistemi i taksave Ã«shtÃ« krijuar pÃ«r t'i penalizuar ata qÃ« fitojnÃ« para nga puna e tyre dhe pÃ«r t'i favorizuar ata qÃ« fitojnÃ« para nga investimet e tyre. Ai gjithashtu tregon se si korporatat janÃ« njÃ« mjet i fuqishÃ«m pÃ«r t'u mbrojtur nga taksat dhe pÃ«r t'u bÃ«rÃ« mÃ« shumÃ« para.
+- MÃ«simi 5: TÃ«rheqja e parave Ã«shtÃ« njohuri financiare. Autori shpjegon se si tÃ« pasurit kanÃ« njohuri financiare qÃ« i ndihmon tÃ« gjejnÃ« mundÃ«si investimi nÃ« Ã§do situatÃ« ekonomike, ndryshe nga Ã§far thuhet nÃ« mediat. Ai gjithashtu tregon se si tÃ« pasurit kanj njohuri financiare qe i ndihmon te kuptojne diferencen midis aseteve dhe detyrimeve.
+
+babai i pasur babai i varfer pdf download,  babai i pasur babai i varfer pdf shqip,  babai i pasur babai i varfer pdf online,  babai i pasur babai i varfer pdf free shqip,  babai i pasur babai i varfer pdf free download,  babai i pasur babai i varfer robert kiyosaki pdf,  babai i pasur babai i varfer robert kiyosaki pdf free,  babai i pasur babai i varfer robert kiyosaki pdf shqip,  babai i pasur babai i varfer robert kiyosaki pdf download,  babai i pasur babai i varfer robert kiyosaki pdf online,  babai i pasur babai i varfer libri pdf,  babai i pasur babai i varfer libri pdf free,  babai i pasur babai i varfer libri pdf shqip,  babai i pasur babai i varfer libri pdf download,  babai i pasur babai i varfer libri pdf online,  babai i pasur babai i varfer shqip pdf,  babai i pasur babai i varfer shqip pdf free,  babai i pasur babai i varfer shqip pdf download,  babai i pasur babai i varfer shqip pdf online,  babai i pasur babai i varfer rich dad poor dad pdf,  babai i pasur babai i varfer rich dad poor dad pdf free,  babai i pasur babai i varfer rich dad poor dad pdf shqip,  babai i pasur babai i varfer rich dad poor dad pdf download,  babai i pasur babai i varfer rich dad poor dad pdf online,  babai i pasur babai i varfer goodreads pdf,  babai i pasur babai i varfer goodreads pdf free,  babai i pasur babai i varfer goodreads pdf shqip,  babai i pasur babai i varfer goodreads pdf download,  babai i pasur babai i varfer goodreads pdf online,  babai i pasur babai i varfer fliphtml5 pdf,  babai i pasur babai
+ 8cf37b1e13
+ 
